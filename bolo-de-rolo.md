@@ -4,9 +4,9 @@ A traditional dessert from Pernambuco state, Brazil, [Bolo de Rolo](https://en.w
 
 I always thought this to be a very complicated and time-consuming recipe to make since I never heard of anyone preparing it at home - we often buy it from a local bakery or get it as a dessert in a restaurant. Living abroad I change my perspective on cooking and more and more I want to be able to cook my favorite dishes. Luckily, I found an incredible video tutorial on [Youtube](https://youtu.be/vbAjhGzXakM) (in Portuguese) explaining in detail how to bake this dessert form the comfort of my Dutch kitchen - with an essential ingredient, Goiabada (guava paste). My life was never the same ever since.
 
-Serves: 12-15 slices
-Preparation: 35 min
-Cooking: 8 min
+- Serves: 12-15 slices
+- Preparation: 35 min
+- Cooking: 8 min
 
 ## Before you start
 - It's essential to have a baking tray of max 1cm deep as you will need to spread the cake batter as thin as possible on the tray.
