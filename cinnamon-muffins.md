@@ -8,7 +8,7 @@ As baking cakes is always an issue to me -- not the process per se but the fact 
 - Baking: 20 min
 
 ## Ingredients
-### For the crums
+### For the crumbs
 - ½ cup of wheat flour (70g)
 - ½ cup of sugar (100g)
 - 1 teaspoon of ground cinnamon
